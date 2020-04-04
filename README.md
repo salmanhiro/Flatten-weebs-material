@@ -7,5 +7,5 @@ Everyone know that being weebs is not a normal one. obsessed with 2d pictures. S
 Take a look at this weeps pic
 ![anime](anime.jpg)
 
-#HAHAHA
+# HAHAHA disgusting
 ![anime](eat_that_weebs.jpg)
